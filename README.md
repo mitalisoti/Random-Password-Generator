@@ -18,7 +18,7 @@ My favorite countries are
 3. Deutschland
 4. Spain
 5. Australia
-jifijkjkjkjgkfjgkfgfjgkfjk
+6. New Zealand
 
  ![alt text](https://upload.wikimedia.org/wikipedia/commons/d/de/Amazon_icon.png)
 
